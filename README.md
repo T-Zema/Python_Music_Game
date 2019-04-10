@@ -19,3 +19,6 @@ Jakub Stankiewicz - Sound Designer
 
 Женя Владимирова (Jenia Vladimirova) - Art Designer
 
+
+link to trello
+https://trello.com/b/iHxO1kUE/p-r-o-l-o-g-u-s
